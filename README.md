@@ -1,0 +1,1 @@
+manfredo class
